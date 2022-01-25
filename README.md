@@ -15,6 +15,9 @@
 # [- # re;owoTuna v1.0-1.1「Selyu」#](https://mega.nz/folder/IAsDGDpJ#K-QkgqEUM6laE-mCyZYa5A/folder/kJdkWSAY)
 ![](https://skins.osuck.net/uploads/posts/2020-08/1596468449_screenshot9247.jpg)
 
+# [JTB x Kano](https://puu.sh/F13i5/33ef85de62.osk)
+![](https://osu.ppy.sh/ss/15436713/7524)
+
 # [おやすみ 『goodnight』](https://osuskins.net/skin/9Wd6Nqg)
 ![](https://osuskins.net/screenshots/9Wd6Nqg.jpg)
 
@@ -29,5 +32,8 @@
 
 # [- ! # !azr8emilia](https://mega.nz/file/kyhjiQTI#BUftmbPwT7sZheK-v0PAeZizeguZ-A6D8c8FBKIMcn0)
 ![](https://skins.osuck.net/uploads/posts/2018-11/1542865884_screenshot1213.jpg)
+
+# [Ponytail HDDT](https://gerwi2.s-ul.eu/UpwA6ZsP)
+![](https://i.imgur.com/o9VRoFm.png)
 
 
