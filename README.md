@@ -1,7 +1,6 @@
 # My-skins
 
 # [- Nikstrim v 1.0 [HD/SD]](https://mega.nz/folder/OCQ0QSSS#Q9Jiu7cJQB5p9Gn7XGR3tw)
-All variants included in the google drive link above.
 ![](https://i.imgur.com/uYovfhV.png)
 
 # [Seoul v10 [HD/SD]](https://drive.google.com/u/0/uc?id=1Y0IvxhFFVWWPp1bzKbh71JePTmxIdsoy&export=download)
