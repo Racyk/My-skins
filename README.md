@@ -36,4 +36,6 @@
 # [Ponytail HDDT](https://gerwi2.s-ul.eu/UpwA6ZsP)
 ![](https://i.imgur.com/o9VRoFm.png)
 
+# [_ Shield skin](https://drive.google.com/file/d/1lluh-sODyZjd4Ii67ZkDozR98omxOair/view)
+
 
