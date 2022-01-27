@@ -37,5 +37,6 @@
 ![](https://i.imgur.com/o9VRoFm.png)
 
 # [_ Shield skin](https://drive.google.com/file/d/1lluh-sODyZjd4Ii67ZkDozR98omxOair/view)
+![](https://zippyimage.com/images/2022/01/27/d36866db49ed0dce2ef750693e672cb0.md.png)
 
 
