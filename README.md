@@ -39,4 +39,7 @@
 # [_ Shield skin](https://drive.google.com/file/d/1lluh-sODyZjd4Ii67ZkDozR98omxOair/view)
 ![](https://zippyimage.com/images/2022/01/27/b73b9d10ef3fbca846bd845538980f92.png)
 
+# [« Minimalist 2.0 »](https://drive.google.com/drive/folders/1dTEq0NwzC9ytQPaKoyLFynAyiK3c2GBA)
+![](https://i.imgur.com/47aIKfQ.png)
+
 
