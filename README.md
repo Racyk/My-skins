@@ -48,4 +48,7 @@
 # [Amane Kanata [天音かなた]](http://www.mediafire.com/file/xqug0lnw74gre0g/Amane_Kanata_%255B%25E5%25A4%25A9%25E9%259F%25B3%25E3%2581%258B%25E3%2581%25AA%25E3%2581%259F%255D_by_GKen.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2020-07/1594368868_3.jpg)
 
+# [Amane Kanata [天音かなた]](https://mega.nz/file/QM9l0KgA#mmH2pucj-fVofnFnA7TcwNLChvHOYc5cYBoQSDZZ_yU)
+![](https://skins.osuck.net/uploads/posts/2020-06/1591519327_screenshot8887.jpg)
+
 
