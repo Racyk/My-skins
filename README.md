@@ -42,4 +42,10 @@
 # [« Minimalist 2.0 »](https://drive.google.com/drive/folders/1dTEq0NwzC9ytQPaKoyLFynAyiK3c2GBA)
 ![](https://i.imgur.com/47aIKfQ.png)
 
+# [- Sakamata CHLOE](https://drive.google.com/file/d/11MnjQMgtkzawaz3jUYnq0yG8wT77baGZ/view)
+![](https://i.imgur.com/3K8x5Nf.png)
+
+# [Amane Kanata [天音かなた]](http://www.mediafire.com/file/xqug0lnw74gre0g/Amane_Kanata_%255B%25E5%25A4%25A9%25E9%259F%25B3%25E3%2581%258B%25E3%2581%25AA%25E3%2581%259F%255D_by_GKen.osk/file)
+![](https://skins.osuck.net/uploads/posts/2020-07/1594368868_3.jpg)
+
 
